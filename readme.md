@@ -1,4 +1,5 @@
-Moisés Salgado  e mais 5 integrantes
+Moisés Salgado, Carla Naves e mais 3 integrantes.
+
 # Desafio CTJT - BB
 
 **DESAFIO**
