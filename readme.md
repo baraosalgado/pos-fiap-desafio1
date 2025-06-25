@@ -1,4 +1,4 @@
-Moisés Salgado, Carla Naves e mais 3 integrantes.
+Moisés Salgado RM366961, Carla Naves RM366952, Genaton RM366963, Renan e outro.
 
 # Desafio CTJT - BB
 
